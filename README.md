@@ -25,7 +25,6 @@ From bold campaigns to elegant designs, we help businesses connect visually and 
 📘 [Facebook](https://www.facebook.com/profile.php?id=61571934517991)
 
 📎 Usage
-
 Designs are shared for showcase and reference only.  
 Please do not copy, reuse, or redistribute without written permission.
 
